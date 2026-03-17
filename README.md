@@ -31,5 +31,7 @@
 
 ### 📫 Как со мной связаться:
 Telegram: @Loremasterrr
+
 gmail: omegamtf252@gmail.com
+
 discord: ntf_
